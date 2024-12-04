@@ -1,0 +1,1 @@
+A segmentação de clientes é uma estratégia de marketing que divide uma base de clientes em grupos com características em comum. O objetivo é impactar cada grupo de forma mais assertiva, com mensagens específicas de acordo com seus interesses, necessidades e preferências.
